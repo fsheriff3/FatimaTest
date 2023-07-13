@@ -8,7 +8,7 @@ My favorite color to draw with is:
 3. Green
 
 My favorite song is by Bryson Tiller: Keep Doing What Your Doing; the best song of all! I listen to this song on my free time when painting portraits. 
-I love art museuems and art gallaries. 
+I love art museums and art gallaries. 
 
 **Down below is an example of my art style.**
 

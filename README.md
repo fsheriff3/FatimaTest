@@ -1,4 +1,4 @@
-# Fatima Hobbies and things
+# Fatima's Hobbies and things
 
 I am an artist/project manager scholar at YearUp Greater Atlanta. I love art and the beauty of it.
 On my free time I draw and paint portraits where I sell them on a platform called Redbubble. 
